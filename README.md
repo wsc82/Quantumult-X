@@ -1,1 +1,1 @@
-# Quantumult-X
+转载自用
